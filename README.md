@@ -1,2 +1,2 @@
 # Portfolio
-So this is a repository regarding an information about myself and my work, you can see what I do, and what I have done through the link to my Portfolio below. Thanks for visiting, and thanks for taking the efforts to know more about me 🐱✌️!.
+Hey yo 🐱✌️, nice to meet yall. Thos is the repository for my Portfolio. Here you can get to know who I am as well as about my work and projects too. You can watch my work proof, and projects in different tabs. And Thanks for giving it a visit, have a good day and well, check out my socials too, maybe lets get connected 🤙!...
